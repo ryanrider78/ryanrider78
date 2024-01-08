@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ryanrider78
+- 👋 Hi, I’m @ryanrider78 aka ugunzombie
 - 👀 I’m interested in writing, coding and design
 - 🌱 I’m currently learning writing and drawing
 - 💞️ I’m looking to collaborate on writing, coding and design
